@@ -1,0 +1,1 @@
+This is a compendium of Sova lineups for VALORANT. They don't exist just yet.
